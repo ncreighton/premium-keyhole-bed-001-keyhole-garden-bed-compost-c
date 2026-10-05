@@ -1,0 +1,2 @@
+# premium-keyhole-bed-001-keyhole-garden-bed-compost-c
+Tired of juggling scattered notes and spreadsheets for your keyhole garden build and compost core maintenance? This Notion template puts every detail—from initial dimensions to daily core feeding—in one cohesive hub.  The Keyhole Garden Bed &amp; Compost Core Craft Hub solves the chaos of planning a raised bed with a central compost core. It’s the only
